@@ -33,21 +33,24 @@ https://emeaentrepreneur.com/timeless-excellence-switzerlands-dominance-in-the-w
 https://theglobalpreneur.com/category/blog-and-insights/
 
 - **EMEA Entrepreneur – Market Insights**
-https://emeaentrepreneur.com/category/market-insights/
+ https://emeaentrepreneur.com/category/market-insights/
 
 - **EMEA Entrepreneur – Management**
-https://emeaentrepreneur.com/category/management/
+ https://emeaentrepreneur.com/category/management/
 
 - **APAC Entreprenur**
-- https://apacentrepreneur.com/
+ https://apacentrepreneur.com/
 
 - **Entrepreneur Gulf**
-- https://entrepreneurgulf.com/
+  https://entrepreneurgulf.com/
 
 - **Europe Entreprenur**
-- https://eu.entrepreneur.com/
+  https://eu.entrepreneur.com/
 
-These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies._
+- **Engineering Realm**
+  https://engineeringrealm.com/
+  
+These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies.
 
 **Almost all the articles, cover stories, blogs, and social media copies are written by me.**
 
