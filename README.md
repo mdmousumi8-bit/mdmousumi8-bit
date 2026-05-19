@@ -38,7 +38,18 @@ https://emeaentrepreneur.com/category/market-insights/
 - **EMEA Entrepreneur – Management**
 https://emeaentrepreneur.com/category/management/
 
-These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies._Almost all the articles, cover stories, blogs, and social media copies are written by._
+- **APAC Entreprenur**
+https://apacentrepreneur.com/
+
+- **Entrepreneur Gulf**
+https://entrepreneurgulf.com/
+
+- **Europe Entreprenur**
+  https://eu.entrepreneur.com/
+
+These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies._
+
+**Almost all the articles, cover stories, blogs, and social media copies are written by me.**
 
 ## LinkedIn
 https://www.linkedin.com/in/mousumidey21/
