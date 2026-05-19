@@ -39,13 +39,13 @@ https://emeaentrepreneur.com/category/market-insights/
 https://emeaentrepreneur.com/category/management/
 
 - **APAC Entreprenur**
-https://apacentrepreneur.com/
+- https://apacentrepreneur.com/
 
 - **Entrepreneur Gulf**
-https://entrepreneurgulf.com/
+- https://entrepreneurgulf.com/
 
 - **Europe Entreprenur**
-  https://eu.entrepreneur.com/
+- https://eu.entrepreneur.com/
 
 These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies._
 
