@@ -18,24 +18,24 @@ I craft content that transforms complex ideas into clear, human-centered narrati
 - **How Meaningful Appraisals Can Transform Company Culture**  
   https://theglobalpreneur.com/how-meaningful-appraisals-can-transform-company-culture/
 
-  **Angela Dotson – Pioneering Women's Health Innovation in the Med-Tech Space**
+- **Angela Dotson – Pioneering Women's Health Innovation in the Med-Tech Space**
 https://thehealthcareinsights.com/angela-dotson-pioneering-womens-health-innovation-in-the-med-tech-space/
 
- **Unleashing the Power of Storytelling in Personal Branding**
+ - **Unleashing the Power of Storytelling in Personal Branding**
 https://theglobalpreneur.com/unleashing-the-power-of-story-telling-in-personal-branding/
 
- **Timeless Excellence: Switzerland's Dominance in the Watch Industry**
+ - **Timeless Excellence: Switzerland's Dominance in the Watch Industry**
 https://emeaentrepreneur.com/timeless-excellence-switzerlands-dominance-in-the-watch-industry/
 
  **Additional Writing Collections**
 
-**The Globalpreneur – Blog & Insights**
+- **The Globalpreneur – Blog & Insights**
 https://theglobalpreneur.com/category/blog-and-insights/
 
-**EMEA Entrepreneur – Market Insights**
+- **EMEA Entrepreneur – Market Insights**
 https://emeaentrepreneur.com/category/market-insights/
 
-**EMEA Entrepreneur – Management**
+- **EMEA Entrepreneur – Management**
 https://emeaentrepreneur.com/category/management/
 
 These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies._Almost all the articles, cover stories, blogs, and social media copies are written by._
