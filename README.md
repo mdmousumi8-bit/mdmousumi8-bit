@@ -13,33 +13,45 @@ I craft content that transforms complex ideas into clear, human-centered narrati
   https://theglobalpreneur.com/ai-technology-and-the-evolving-human-touch/
 
 - **Jamie van Leeuwen**  
-  https://apacentrepreneur.com/jamie-van-leeuwen/
+  https://apacentrepreneur.asia/jamie-van-leeuwen/
 
 - **How Meaningful Appraisals Can Transform Company Culture**  
   https://theglobalpreneur.com/how-meaningful-appraisals-can-transform-company-culture/
 
 - **Angela Dotson – Pioneering Women's Health Innovation in the Med-Tech Space**
-https://thehealthcareinsights.com/angela-dotson-pioneering-womens-health-innovation-in-the-med-tech-space/
+  https://thehealthcareinsights.com/angela-dotson-pioneering-womens-health-innovation-in-the-med-tech-space/
 
  - **Unleashing the Power of Storytelling in Personal Branding**
-https://theglobalpreneur.com/unleashing-the-power-of-story-telling-in-personal-branding/
+  https://theglobalpreneur.com/unleashing-the-power-of-story-telling-in-personal-branding/
 
  - **Timeless Excellence: Switzerland's Dominance in the Watch Industry**
-https://emeaentrepreneur.com/timeless-excellence-switzerlands-dominance-in-the-watch-industry/
+  https://emeaentrepreneur.com/timeless-excellence-switzerlands-dominance-in-the-watch-industry/
+
+-  **Amy DeTavis: Unleashing the Synergy of Urban-Nature Communion**
+  https://emeaentrepreneur.com/amy-detavis-unleashing-the-synergy-of-urban-nature-communion/
+
+- **The 5 AM Economy: Why the World’s Most Powerful Business Hours Belong to APAC**
+  https://apacentrepreneur.asia/the-5-am-economy/
+
+- **Dr. Jean-Paul Ly: Reimagining Veterinary Care through a Holistic Lens with Safe, Effective, and  Affordable Solutions**
+  https://apacentrepreneur.asia/dr-jean-paul-ly/
+
+- **Frederic So: The Architect of Asia’s Food Ingredient Revolution**
+  https://apacentrepreneur.asia/frederic-so/
 
  **Additional Writing Collections**
 
 - **The Globalpreneur – Blog & Insights**
-https://theglobalpreneur.com/category/blog-and-insights/
+  https://theglobalpreneur.com/category/blog-and-insights/
 
 - **EMEA Entrepreneur – Market Insights**
- https://emeaentrepreneur.com/category/market-insights/
+   https://emeaentrepreneur.com/category/market-insights/
 
 - **EMEA Entrepreneur – Management**
- https://emeaentrepreneur.com/category/management/
+   https://emeaentrepreneur.com/category/management/
 
 - **APAC Entreprenur**
- https://apacentrepreneur.com/
+   https://apacentrepreneur.asia/
 
 - **Entrepreneur Gulf**
   https://entrepreneurgulf.com/
