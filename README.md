@@ -12,6 +12,9 @@ I craft content that transforms complex ideas into clear, human-centered narrati
 - **AI Technology and the Evolving Human Touch**  
   https://theglobalpreneur.com/ai-technology-and-the-evolving-human-touch/
 
+ **The Architect of Africa’s Creative Future: The Human Story Behind X3M Ideas**
+  https://emeaentrepreneur.com/the-architect-of-africas-creative-future/
+
 - **Jamie van Leeuwen**  
   https://apacentrepreneur.asia/jamie-van-leeuwen/
 
@@ -41,6 +44,10 @@ I craft content that transforms complex ideas into clear, human-centered narrati
 
  **Additional Writing Collections**
 
+These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies.
+
+ **Almost all the articles, cover stories, blogs, and social media copies are written by me.**
+
 - **The Globalpreneur – Blog & Insights**
   https://theglobalpreneur.com/category/blog-and-insights/
 
@@ -61,10 +68,6 @@ I craft content that transforms complex ideas into clear, human-centered narrati
 
 - **Engineering Realm**
   https://engineeringrealm.com/
-  
-These collections represent a broader body of work spanning leadership, branding, workplace culture, future of work, and emerging technologies.
-
-**Almost all the articles, cover stories, blogs, and social media copies are written by me.**
 
 ## LinkedIn
 https://www.linkedin.com/in/mousumidey21/
