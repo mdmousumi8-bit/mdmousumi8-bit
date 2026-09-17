@@ -12,7 +12,7 @@ I craft content that transforms complex ideas into clear, human-centered narrati
 - **AI Technology and the Evolving Human Touch**  
   https://theglobalpreneur.com/ai-technology-and-the-evolving-human-touch/
 
- **The Architect of Africa’s Creative Future: The Human Story Behind X3M Ideas**
+- **The Architect of Africa’s Creative Future: The Human Story Behind X3M Ideas**
   https://emeaentrepreneur.com/the-architect-of-africas-creative-future/
 
 - **Jamie van Leeuwen**  
